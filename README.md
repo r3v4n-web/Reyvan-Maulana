@@ -1,2 +1,3 @@
 # Reyvan-Maulana
-student in Smk Negeri 1 Kepanjen
+STUDENDT IN SMKS CENDIKA BANGSA
+Nice To Meet You >u<
